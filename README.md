@@ -1,7 +1,7 @@
 # grover-pt-info
 **Hiiiii I'm Grover! Putting more of my Pony Town info here.**
 
-Just because my character has a certain pride flag does not mean I personally identify that way. I personally am **Trans Boy+, AroAllo, and Polyam** (+ more ish), so if a pony has something else that's my headcanon for them.
+Just because my character has a certain pride flag does not mean I personally identify that way. I personally am **Trans ExtraBoy+, AroAllo, and Polyam** (+ more ish), so if a pony has something else that's my headcanon for them.
 
 Main fandoms include **Life Series, EPIC the musical, Good Omens, Indigo Park, and more.**
 
